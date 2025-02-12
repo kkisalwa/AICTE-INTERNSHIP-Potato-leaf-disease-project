@@ -1,0 +1,1 @@
+# AICTE-INTERNSHIP-Potato-leaf-disease-project
